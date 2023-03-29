@@ -77,6 +77,9 @@ No Game No Life: Zero OP - THERE IS A REASON (Full) / NO SONG NO LIFE
 https://www.youtube.com/watch?v=kJ04dMmimn8
 This game
 
+https://www.youtube.com/watch?v=wtJcLWeY114
+amazarashi 『季節は次々死んでいく』 ”Seasons die one after another” “東京喰種トーキョーグール√A”ED
+
 # historia:
 https://www.youtube.com/watch?v=yMLP9c9LfvU  
 No game no life Zero: schwi VS Jibril full fight English dubbed HD
