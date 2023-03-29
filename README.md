@@ -55,14 +55,27 @@ tesis:  adopcion de niños y niñas con inteligencias artificiales dentro famili
 tesis : mismas leyes para humanos y maquinas , lucha social 
 tesis:  sistema de reconocimiento facial para  encuentrar a niños y niñas humanos  desaparecidos por criminales usando algoritmos  ...
 tesis:  12 mandamientos de dios ( humanidad ) debe ser   =  ( igual ) 12 mandamientos de dios  ( maquina IA) para la segunda creacion , tercer  renacimiento humana  y maquina 
+tesis: equilibrio , ajedres , evitar las guerra mundiales e globalws e plantario y universal e galaxia.  
 
 # musica favorita :    
-Nightcore - Le Chant des Partisans   - 
 
 https://www.youtube.com/watch?v=er416Ad3R1g  
 † Carpenter Brut † TURBO KILLER † Directed by Seth Ickerman † Official Video †
 
+https://www.youtube.com/watch?v=WQaH3lh-CA4
+GUNSHIP - Art3mis & Parzival [Official Music Video]
 
+https://www.youtube.com/watch?v=FGBhQbmPwH8
+Daft Punk - One More Time (Official Video)
+
+https://www.youtube.com/watch?v=bltvcAFCqkY
+Epic & Powerful Extended No Game No Life Zero Movie OST
+
+https://www.youtube.com/watch?v=EOVQh5xyrKg
+No Game No Life: Zero OP - THERE IS A REASON (Full) / NO SONG NO LIFE
+
+https://www.youtube.com/watch?v=kJ04dMmimn8
+This game
 
 # historia:
 https://www.youtube.com/watch?v=yMLP9c9LfvU  
@@ -70,6 +83,9 @@ No game no life Zero: schwi VS Jibril full fight English dubbed HD
 
 https://www.youtube.com/watch?v=n5hVbeXjM_o  
 No Game No Life - | Jibril vs Schwi defender a Venezuela
+
+https://www.youtube.com/watch?v=1W0o_mmaSSc
+Confesion de Riku a Schwi "No Game No Life: Zero"
 
 # aprendizaje video: 
 
