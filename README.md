@@ -58,15 +58,24 @@ tesis:  12 mandamientos de dios ( humanidad ) debe ser   =  ( igual ) 12 mandami
 
 # musica favorita :    
 Nightcore - Le Chant des Partisans   - 
-https://www.youtube.com/watch?v=er416Ad3R1g   † Carpenter Brut † TURBO KILLER † Directed by Seth Ickerman † Official Video †
+https://www.youtube.com/watch?v=er416Ad3R1g  
+† Carpenter Brut † TURBO KILLER † Directed by Seth Ickerman † Official Video †
+
 # historia:
-https://www.youtube.com/watch?v=yMLP9c9LfvU  No game no life Zero: schwi VS Jibril full fight English dubbed HD
-https://www.youtube.com/watch?v=n5hVbeXjM_o   No Game No Life - | Jibril vs Schwi defender a Venezuela
+https://www.youtube.com/watch?v=yMLP9c9LfvU  
+No game no life Zero: schwi VS Jibril full fight English dubbed HD
+
+https://www.youtube.com/watch?v=n5hVbeXjM_o  
+No Game No Life - | Jibril vs Schwi defender a Venezuela
+
 # aprendizaje video: 
 12 mandamientos de dios 
-https://www.youtube.com/watch?v=YUQEL2ZTAfg    Los mandamientos SATÁNICOS son mejores que los CRISTIANOS - La Historia Real
-https://www.youtube.com/watch?v=W5s2q8GdyHc    Los 10 Mandamientos, No Son lo Que Creías.
-https://www.youtube.com/watch?v=tP7nezO7e2E    Los verdaderos 10 mandamientos de la Biblia
+https://www.youtube.com/watch?v=YUQEL2ZTAfg   
+Los mandamientos SATÁNICOS son mejores que los CRISTIANOS - La Historia Real
+https://www.youtube.com/watch?v=W5s2q8GdyHc   
+Los 10 Mandamientos, No Son lo Que Creías.
+https://www.youtube.com/watch?v=tP7nezO7e2E    
+Los verdaderos 10 mandamientos de la Biblia
 
 
 
