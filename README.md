@@ -90,6 +90,10 @@ No Game No Life - | Jibril vs Schwi defender a Venezuela
 https://www.youtube.com/watch?v=1W0o_mmaSSc
 Confesion de Riku a Schwi "No Game No Life: Zero"
 
+https://www.youtube.com/watch?v=ZGLy_-tFaBY
+
+El día que MURIÓ Juana de Arco
+
 
 # aprendizaje video: 
 
@@ -112,6 +116,7 @@ La inteligencia artificial y los 10 mandamientos!!!
 
 https://www.youtube.com/watch?v=aUJuwNxNUWQ
 GUNSHIP - Ghost (feat. @powergloveaudio) [Official Music Video]
+
 
 
 
