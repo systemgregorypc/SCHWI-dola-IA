@@ -62,8 +62,7 @@ Nightcore - Le Chant des Partisans   -
 https://www.youtube.com/watch?v=er416Ad3R1g  
 † Carpenter Brut † TURBO KILLER † Directed by Seth Ickerman † Official Video †
 
-https://www.youtube.com/watch?v=aUJuwNxNUWQ
-GUNSHIP - Ghost (feat. @powergloveaudio) [Official Music Video]
+
 
 # historia:
 https://www.youtube.com/watch?v=yMLP9c9LfvU  
@@ -87,7 +86,8 @@ Los 10 Mandamientos, No Son lo Que Creías.
 https://www.youtube.com/watch?v=8bqAaZHYK_k
 Los 10 Mandamientos Español Latino REMASTERIZADA 1080HD
 
-
+https://www.youtube.com/watch?v=aUJuwNxNUWQ
+GUNSHIP - Ghost (feat. @powergloveaudio) [Official Music Video]
 
 
 
