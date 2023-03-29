@@ -76,6 +76,8 @@ https://www.youtube.com/watch?v=W5s2q8GdyHc
 Los 10 Mandamientos, No Son lo Que Creías.
 https://www.youtube.com/watch?v=tP7nezO7e2E    
 Los verdaderos 10 mandamientos de la Biblia
+https://www.youtube.com/watch?v=8bqAaZHYK_k
+Los 10 Mandamientos Español Latino REMASTERIZADA 1080HD
 
 
 
