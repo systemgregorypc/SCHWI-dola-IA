@@ -90,6 +90,7 @@ No Game No Life - | Jibril vs Schwi defender a Venezuela
 https://www.youtube.com/watch?v=1W0o_mmaSSc
 Confesion de Riku a Schwi "No Game No Life: Zero"
 
+
 # aprendizaje video: 
 
 https://www.youtube.com/watch?v=YUQEL2ZTAfg  
@@ -104,6 +105,10 @@ Los 10 Mandamientos, No Son lo Que Creías.
 
 https://www.youtube.com/watch?v=8bqAaZHYK_k
 Los 10 Mandamientos Español Latino REMASTERIZADA 1080HD
+
+https://www.youtube.com/watch?v=QPD1lExzWjc
+La inteligencia artificial y los 10 mandamientos!!!
+
 
 https://www.youtube.com/watch?v=aUJuwNxNUWQ
 GUNSHIP - Ghost (feat. @powergloveaudio) [Official Music Video]
